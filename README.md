@@ -1,1 +1,1 @@
-![hidden.pw](./slogans-2.jpg)  
+STAY INVISIBLE, WE JAM
